@@ -1,1 +1,1 @@
-This project is written by Thanyaluck
+This project is written by Tappasarn A.
